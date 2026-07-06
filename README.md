@@ -39,4 +39,4 @@ Bridging hands-on process engineering experience with computational and analytic
 
 ### 📫 Connect with me
 
-[LinkedIn](https://www.linkedin.com/in/kapil-bhandari-67a4a8170/) (#)
+[LinkedIn](https://www.linkedin.com/in/kapil-bhandari-67a4a8170/)
